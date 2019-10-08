@@ -1,0 +1,2 @@
+# LordRed
+Berserk Mode
